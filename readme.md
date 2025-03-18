@@ -1,1 +1,1 @@
-## Ovo je projekat koji je se trazi i rj
+## Ovo je projekat koji je se trazi
